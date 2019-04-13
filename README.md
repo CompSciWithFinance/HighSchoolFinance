@@ -1,5 +1,3 @@
-## Welcome to the Blog
-
 ### Current Issues
 
 # Federal Reserve 
